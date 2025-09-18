@@ -4,9 +4,9 @@
 
 Idk what to put here github is hard and I'm lazy.![](https://file.garden/Zklc_jEbhyHsv91v/tumblr_inline_na7omktKMM1siyl8l540%20(1).gif) 
 
-Look at my strawpage I worked hard on it + there's info on there. Maybe leave a gimmick while youre at it I will love you forever.
+Look at my NEW strawpage I worked hard on it + there's info on there. Maybe leave a gimmick while youre at it I will love you forever.
 
-https://purrusian.straw.page
+https://prussiahetalia.straw.page
 
 Also proud owner of the Ruspru rentry URL
 
